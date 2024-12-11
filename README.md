@@ -20,3 +20,4 @@ I'm passionate about building innovative software solutions and exploring cuttin
 - [Facebook](https://facebook.com/Tinh.lk58)
 - 📧 Email: nguyenvantinh111001@gmail.com
 
+<img src="https://media.giphy.com/media/qgQUggAC3Pfv687qPC/giphy.gif" width="400">
